@@ -19,10 +19,16 @@ Link replit ejercicio aplicativo intermedio:
 
 https://replit.com/join/kbqlvugqzl-andre-renzorenz
 
+https://replit.com/join/hxihlmjwvd-italo-fabricio
+
+Link replit ejercicio aplicativo avanzado:
+
+https://replit.com/join/tjerqkpffg-andre-renzorenz
+
 Links replit de la aplicación:
 
 https://replit.com/join/upcghihjby-daniel-edwarded
 
-https://replit.com/join/hxihlmjwvd-italo-fabricio
+
 
 
